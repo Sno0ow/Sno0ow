@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-## Oiii! Eu sou o João
+## Oiii! Eu sou o Sno0ow
  <div>
 <div align="center">
   <a href="https://github.com/Sno0ow">
